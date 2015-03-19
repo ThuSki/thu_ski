@@ -1,0 +1,2 @@
+# thu_ski
+Mimimimi
